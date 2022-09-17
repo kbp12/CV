@@ -1,2 +1,2 @@
-# CV
-Kedar Pathade
+# Kedar Pathade
+Personal Information
